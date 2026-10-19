@@ -1,1 +1,1 @@
-https://humanchat-8l4xmxjb.manus.space/
+https://wellnessbot-fus3qp2a.manus.space/
